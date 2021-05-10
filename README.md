@@ -1,15 +1,15 @@
 ![Energetic;An image by TheJades](/Energetic1.png)
-#Who am I?
+# Who am I?
   👋 Hi, I’m **TheJades**, or the **former joshuadragon77**.
-#What am I interested in?
+# What am I interested in?
   👀 I’m interested in music, the theory and the nature of the world (how the universe was born) and you!
-#What music I like!
+# What music I like!
   🎶 I like the album "Nuture" by Porter Robinson and "Hurry up, we're dreaming" by M83. Represents my mood everyday.
-#What I'm learning.
+# What I'm learning.
   🌱 I’m currently learning high school courses.
-#wdtm
+# wdtm
   💞️ I’m looking to collaborate on nothing, yet so far.
-#How to connect
+# How to connect
   📫 How to reach me _thejadesisfat77@gmail.com_
 
 <!---

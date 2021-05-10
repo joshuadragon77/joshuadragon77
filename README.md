@@ -1,3 +1,5 @@
+![Energetic;An image by TheJades](/Energetic.png)
+
 - 👋 Hi, I’m TheJades, or the former joshuadragon77.
 - 👀 I’m interested in music, the theory and the nature of the world (how the universe was born) and you!
 - 🎶 I like the album "Nuture" by Porter Robinson and "Hurry up, we're dreaming" by M83. Represents my mood everyday.

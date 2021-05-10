@@ -1,4 +1,4 @@
-![Energetic;An image by TheJades](/Energetic.png)
+![Energetic;An image by TheJades](/Energetic1.png)
 
 - 👋 Hi, I’m TheJades, or the former joshuadragon77.
 - 👀 I’m interested in music, the theory and the nature of the world (how the universe was born) and you!

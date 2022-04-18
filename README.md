@@ -1,4 +1,4 @@
-![Energetic;An image by TheJades](/Energy Core.png)
+![Energetic;An image by TheJades](./Energy\ Core.png)
 # Who am I?
   👋 Hi, I’m **TheJades**, or the **former joshuadragon77**.
 # What am I interested in?

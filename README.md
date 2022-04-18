@@ -7,6 +7,7 @@
   🎶 I like music. I won't tell you as I am afraid to tell you all. But I can tell you that I like them. 
 # What I'm learning.
   🌱 I’m currently learning engineering courses in university.
+  <br>
   ✍️ I'm also learning how to be better at making visual art and crap. I don't like being the person that is great with understanding computers, masterful at debugging, and idk what else. I want to expand and infilitrate a new world.
 # wdtm
   💞️ I’m looking to collaborate on nothing, yet so far. But, I am getting there.

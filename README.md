@@ -1,4 +1,4 @@
-![Energy Core;An image by TheJades](https://github.com/joshuadragon77/joshuadragon77/blob/main/Energy%20Core%20Smalled.png?raw=true)
+![Energy Core;An image by TheJades](https://github.com/joshuadragon77/joshuadragon77/blob/main/Background.png?raw=true)
 # Who am I?
   👋 Hi, I’m **TheJades**, or the **former joshuadragon77**.
 # What am I interested in?

@@ -1,4 +1,4 @@
-![JadeShip;An image by TheJades](https://github.com/joshuadragon77/joshuadragon77/blob/main/1871F3D5-52EC-4B5B-ADA6-F98E92CD2342.png?raw=true)
+![JadeShip;An image by TheJades](https://github.com/joshuadragon77/joshuadragon77/blob/main/GlideM.png?raw=true)
 # Who am I?
   👋 Hi, I’m **TheJades**, or the **former joshuadragon77**.
 # What am I interested in?

@@ -12,7 +12,7 @@
 # wdtm
   💞️ I’m looking to collaborate on nothing, yet so far. But, I am getting there.
 # How to connect
-  📫 How to reach me _thejadesisfat77@gmail.com_
+  📫 How to reach me _thejades@jades.dev_
 
 <!---
 joshuadragon77/joshuadragon77 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
